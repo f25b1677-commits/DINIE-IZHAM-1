@@ -1,1 +1,0 @@
-# DINIE-IZHAM-1
